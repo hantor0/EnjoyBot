@@ -1,4 +1,4 @@
-# Privacy Policy PowerBot.
+# Privacy Policy ShareUs.
  
 We thank the customers for reading our privacy policy page, and we assure all customers that their data and personal information will be completely safe, because we are responsible for maintaining that data and we strive in various ways
 
